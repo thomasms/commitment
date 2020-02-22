@@ -1,3 +1,3 @@
-# graffiti
+# commitment
 
-Stay busy
+Stay busy, stay committed.
